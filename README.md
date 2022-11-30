@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TuanDai2k7
+- 👀 I’m interested in 
+- 🌱 I’m currently learning Python, C#, C
+- 💞️ I'm looking for your collabtion
+- 📫 How to reach me: 
+- facebook: 🐧 https://www.facebook.com/dtd.dbka
